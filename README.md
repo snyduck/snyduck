@@ -1,2 +1,2 @@
-# Psy ayy ayy!
+# Hey
 (⊙.☉)7
